@@ -1,3 +1,3 @@
 # ornekproje
 
-falan filan 
+isa musa beni kutsa
